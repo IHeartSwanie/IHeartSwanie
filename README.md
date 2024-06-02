@@ -18,6 +18,6 @@
 
 
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 - Favs: Asuka Langley (NGE) | Ga ming (GI) | LingYang (WuWa) | Yuki Tsukumo (JJK) | Vincent Valentine (FF7) | Ada Wong (RE) | Black Swan (HSR) | Shi Qingxuan (TGCF)
