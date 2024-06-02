@@ -1,16 +1,22 @@
-## Hi there 👋
+## 
 
-<!--
-**IHeartSwanie/IHeartSwanie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I Heart Swanie ✧˖°.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+★ ° . *　　　°　.　°☆ 　. * ● ¸ 
+. 　　　★ 　° :. ★　 * • ○ ° ★　 
+.　 * 　.　 　　　　　. 　 
+° 　. ● . ★ ° . *　　　°　.　°☆ 
+　. * ● ¸ . 　　　★ 　° :●. 　 * 
+• ○ ° ★　 .　 * 　.　 　　　　　.
+ 　 ° 　. ● . ★ ° . *　　　°　.　
+°☆ 　. * ● ¸ . 　　　★ 　
+° :. 　 * • ○ ° ★　 .　 * 　.　 
+　★　　　　. 　 ° 　.  . 　    ★　 　　
+° °☆ 　¸. ● . 　　★　★ 
+° . *　　　°　.　°☆ 　. * ● ¸ . 
+★ ° . *　　　°　.　°☆ 　. * ● ¸ 
+. 　　　★ 　° :. 　 * • ○ ° ★　 
+.　 * 　.　 　★     ° :.☆
+ 
+![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/d066f417-3944-4e48-8526-d2b245ddd5f2)
+✧･ﾟ: *✧･ﾟ::･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:*:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:* ･ﾟ: *✧･ﾟ:*✧･ﾟ:* ✧･ﾟ: *✧･ﾟ:
