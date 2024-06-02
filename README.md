@@ -5,6 +5,7 @@
  
 ପ(੭ ´ᵕ`)੭°• જ⁀
 
-![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/8100a4ff-f5e7-41e1-9202-272f5a1806c7)
+![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/6367beb3-d49d-41fb-987a-0291a7e202a5)
+
 
 ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ *✧･ﾟ:*:･ﾟ✧*:･ﾟ✧✧･ﾟ: *✧･ﾟ:･ﾟ✧*:･ﾟ✧･ﾟ: *✧･ﾟ:* ･ﾟ: *✧･ﾟ:*✧･ﾟ:* ✧･ﾟ: *✧･ﾟ: ˚₊･ﾟ: ˚₊· *✧･ﾟ:˚₊·･ﾟ✧*:･ﾟ✧  ͟͟͞͞➳❥ ˎˊ˗
