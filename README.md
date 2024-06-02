@@ -20,4 +20,4 @@
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-- Favs: Asuka Langley (NGE) | Ga ming (GI) | LingYang (WuWa) | Yuki Tsukumo (JJK) | Vincent Valentine (FF7) | Ada Wong (RE) | Black Swan (HSR) | Shi Qingxuan (TGCF)
+- Favs: Asuka Langley, Shinji Ikari, Rei Ayanami, Misato Katsuragi (NGE) | Ga ming, Arlecchino, Yae Miko, Arataki Itto, Razor (GI) | LingYang, Yinlin, Changli  (WuWa) | Yuki Tsukumo, Megumi Fushiguro, Yuji Itadori (JJK) | Vincent Valentine (FF7) | Ada Wong (RE) | Black Swan, Kafka, Acheron, Blade, Jing Yuan, Himeko  (HSR) | Shi Qingxuan, Pei su, Xie Lian (TGCF) | Nicole, Emily, Jecka, Miss Lynn {Class of '09)
