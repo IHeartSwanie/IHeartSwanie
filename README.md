@@ -18,8 +18,7 @@
 
 
 
-
-
+https://arab.org/click-to-help/palestine/ 
 
 
 ![Drawing-18 sketchpad (3)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/02fdd43c-11c7-4c1a-a53f-93febea179bf)
