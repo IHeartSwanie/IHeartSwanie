@@ -1,5 +1,6 @@
 ## 
-![image_2024-06-15_213103426-removebg-preview](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/f623a1de-1967-42f7-a1d9-9041891e1740)
+![Drawing-15 sketchpad (1)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/b101fe2b-6a22-4115-871f-47a8bd57c92c)
+
 
 
  
