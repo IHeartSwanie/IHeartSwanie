@@ -6,7 +6,9 @@
  
 ପ(੭ ´ᵕ`)੭°• જ⁀
 
-![Uploading Untitled66_20240615225357.png…]()
+
+![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/ec83814d-3819-48d6-a75d-cc5139adfab3)
+
 
 
 
