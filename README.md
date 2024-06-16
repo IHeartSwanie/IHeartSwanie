@@ -7,7 +7,7 @@
 ପ(੭ ´ᵕ`)੭°• જ⁀
 
 
-![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/ec83814d-3819-48d6-a75d-cc5139adfab3)
+![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/f78bd680-58f2-42fb-a312-3b04f16b33ee)
 
 
 
