@@ -19,7 +19,9 @@ kendrick better.
 
 
 ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠᅠ ꒰ঌ **I HEART SWANIE** ໒꒱🖊️
+guess who got lazy with their READme !!
 
+(not me 100% dawg..)
 
 
 ![Drawing-18 sketchpad (3)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/02fdd43c-11c7-4c1a-a53f-93febea179bf)
