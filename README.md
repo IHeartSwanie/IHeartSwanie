@@ -5,9 +5,6 @@
 ![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/9084dcf5-0b72-4fa3-9241-aee2e4577f08)
 
 
- 
-ପ(੭ ´ᵕ`)੭°• જ⁀
-
 
 ![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/f78bd680-58f2-42fb-a312-3b04f16b33ee)
 
