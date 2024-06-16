@@ -22,7 +22,7 @@ kendrick better.
 
 
 
-guess who got lazy with their READme !!
+guess who got lazy with their README !!
 
 (not me 100% dawg..)
 
