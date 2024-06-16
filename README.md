@@ -13,7 +13,7 @@
 
 
 
-ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ    *✧･ﾟ:*:･ﾟ✧*:･ﾟ✧･ﾟ: *✧･ﾟ:･ﾟ✧*:･ﾟ✧･ﾟ: *✧･ﾟ:* ･ﾟ: *✧･ﾟ:*✧･ﾟ:* ✧･ﾟ: *✧･ﾟ: ˚₊･ﾟ: ˚₊· *✧･ﾟ:˚₊·･ﾟ✧*:･ﾟ✧  ͟͟͞͞➳❥ ˎˊ˗
+ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠᅠᅠ   
 
 
 
@@ -23,5 +23,5 @@
 
 
 
+![Drawing-17 sketchpad](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/242f8c1d-acfe-48d3-be9f-4aae97cfd4a2)
 
-![Drawing-15 sketchpad](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/58512cc2-7e80-4c98-8e03-bb45695a2b5a)
