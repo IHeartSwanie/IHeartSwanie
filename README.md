@@ -22,7 +22,6 @@
 
 
 
-![Drawing-17 sketchpad (3)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/1bdbcea1-00ee-413e-858d-5f00ce1024cf)
-
+![Drawing-18 sketchpad](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/de1e718e-cf48-46d3-82a3-1684e664344f)
 
 
