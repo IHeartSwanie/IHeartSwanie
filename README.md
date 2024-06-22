@@ -1,5 +1,5 @@
 ## 
-![Drawing-18 sketchpad (4)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/6c013667-68f7-43fc-8f1f-0f04af123b98)
+
 
 
 kendrick better.
