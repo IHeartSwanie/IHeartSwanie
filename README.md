@@ -28,6 +28,8 @@ kendrick better.
 
 **[CLICK TO HELP PALESTINE](https://arab.org/click-to-help/palestine/)**  
 
+⋆˙⟡♡⟡⋆˙  
+
 **[DISCORD SERVER](https://discord.gg/dSqj4RKB5W)**
 
 
