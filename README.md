@@ -22,9 +22,6 @@ kendrick better.
 ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠᅠ ꒰ঌ **I HEART SWANIE** ໒꒱🖊️
 
 
-**[CALL ME IF YOU GET LOST](https://web.archive.org/web/20220306181202/https://callmeifyougetlost.com/generator/)**  
-
-![Drawing-18 sketchpad (3)](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/02fdd43c-11c7-4c1a-a53f-93febea179bf)
-
+**[CALL ME IF YOU GET LOST](https://web.archive.org/web/20220306181202/https://callmeifyougetlost.com/generator/)** ⋆˙⟡♡⟡⋆˙  **[CLICK TO HELP PALESTINE](https://arab.org/click-to-help/palestine/)**  
 
 
