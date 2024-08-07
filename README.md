@@ -22,7 +22,7 @@ kendrick better.
 ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠᅠ ꒰ঌ **I HEART SWANIE** ໒꒱🖊️
 
 
-ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ ᅠᅠᅠ ᅠ ᅠᅠᅠ**[CALL ME IF YOU GET LOST](https://web.archive.org/web/20220306181202/https://callmeifyougetlost.com/generator/)**   ⋆˙⟡♡⟡⋆˙  **[CLICK TO HELP PALESTINE](https://arab.org/click-to-help/palestine/)**  ⋆˙⟡♡⟡⋆˙  **[DISCORD SERVER](https://discord.gg/dSqj4RKB5W)**
+**[CALL ME IF YOU GET LOST](https://web.archive.org/web/20220306181202/https://callmeifyougetlost.com/generator/)**   ⋆˙⟡♡⟡⋆˙  **[CLICK TO HELP PALESTINE](https://arab.org/click-to-help/palestine/)**  ⋆˙⟡♡⟡⋆˙  **[DISCORD SERVER](https://discord.gg/dSqj4RKB5W)**
 
 
 
