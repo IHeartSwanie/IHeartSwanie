@@ -10,7 +10,7 @@ kendrick better.
 
 
 
-![image](https://github.com/IHeartSwanie/IHeartSwanie/assets/170365983/4bb63a82-9c72-4682-8062-0c75c929bc45)
+![image](https://media.discordapp.net/attachments/850674806805889036/1289429082777456732/Drawing-27.sketchpad.png?ex=66f8c9e9&is=66f77869&hm=f1fcc0895995e38eb57988368dda687e996bcc47d6a0f815edab331e3dfa9fed&=&format=webp&quality=lossless&width=636&height=585)
 
 
 
