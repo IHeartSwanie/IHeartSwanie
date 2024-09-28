@@ -10,7 +10,7 @@ kendrick better.
 
 
 
-![image](https://media.discordapp.net/attachments/850674806805889036/1289429082777456732/Drawing-27.sketchpad.png?ex=66f8c9e9&is=66f77869&hm=f1fcc0895995e38eb57988368dda687e996bcc47d6a0f815edab331e3dfa9fed&=&format=webp&quality=lossless&width=636&height=585)
+![image](https://media.discordapp.net/attachments/850674806805889036/1289429331826970695/Drawing-27.sketchpad_1.png?ex=66f8ca25&is=66f778a5&hm=a38c9238eb77799b7cdc43124d6b2cfc60b24c8101c77a25daabcd2c8ef2e863&=&format=webp&quality=lossless&width=1141&height=585)
 
 
 
