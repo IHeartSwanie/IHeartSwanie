@@ -10,7 +10,8 @@
 
 
 
-![image](https://media.discordapp.net/attachments/850674806805889036/1289429331826970695/Drawing-27.sketchpad_1.png?ex=66f8ca25&is=66f778a5&hm=a38c9238eb77799b7cdc43124d6b2cfc60b24c8101c77a25daabcd2c8ef2e863&=&format=webp&quality=lossless&width=1141&height=585)
+![image]![Untitled66_20240616182211](https://github.com/user-attachments/assets/5d9b850c-3687-4c99-b164-1cc6bc87f6e1)
+
 
 
 
